@@ -5,6 +5,8 @@
 
 - 🌱 I’m currently learning **Java,Python,C#,Swift**
 
+- 🌍 I’m Speaking **RU EN TR**
+
 - 📞 How To Reach Me **m.emlarslan.10@icloud.com**
 
 - 🤹‍♀️ Fun fact **I'm Stupid .d**
